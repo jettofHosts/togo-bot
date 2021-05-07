@@ -35,3 +35,6 @@ The bot gets updated everyday therefore bugs are most likely to show up. Damn bu
 # Estoterroguard
 
 Watch the new [demon slayer movie](https://animixplay.to/v1/kimetsu-no-yaiba-movie-mugen-ressha-hen-dub) ITS SO EPIC...
+
+
+[![BlackStickDance](https://emoji.gg/assets/emoji/6455-blackstickdance.gif)](https://emoji.gg/emoji/6455-blackstickdance)
